@@ -25,4 +25,4 @@ I'm passionate about becoming a web developer and I'm always eager to learn new 
 
 **Connect with me!** 
 *  [Facebook](https://www.facebook.com/ahiru.minhhanhs/) 🔗
-*  [LinkedIn](https://www.linkedin.com/in/%C3%A1nh-minh-712545282/)) 🔗
+*  [LinkedIn](https://www.linkedin.com/in/%C3%A1nh-minh-712545282/) 🔗
